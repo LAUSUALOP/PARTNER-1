@@ -1,1 +1,1 @@
-# PARNET-1
+# PARTNER-1
